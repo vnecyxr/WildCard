@@ -6,18 +6,17 @@ WildCard信用卡平台是国内最具权威的虚拟信用卡服务平台之一
 
 想立即体验WildCard平台？点击：[WildCard | 一分钟开卡，轻松订阅海外软件服务](https://bit.ly/WildCardo) 使用邀请码 **ACCPAY**，免除2美元的开卡费。开卡后，您可以使用支付宝充值，轻松进行海外支付，或直接使用 [chatgpt随心用](https://bit.ly/WildCardo) 功能，只需手机号注册即可开始使用。
 
-![WildCard平台](![image](https://github.com/user-attachments/assets/91ac409a-5b59-43d2-90cf-144038a6b559)
-)
+![image](https://github.com/user-attachments/assets/6020c442-d33d-4c68-8ea3-a9257654420e)
 
 WildCard支持全球范围的支付服务，包括midjouorney、onlyfans、google play、youtube、spotify等多种服务。
 
-![支付示例](![image](https://github.com/user-attachments/assets/cb484ab1-a8c2-4a9e-a119-b31b9e06715e)
-)
+![image](https://github.com/user-attachments/assets/9686219b-2d7a-4a67-baf8-1a3a95f07757)
+
 
 平台界面简洁明了，操作指引清晰，支付全程使用支付宝，无需担心安全和隐私问题。本人已使用该平台半年以上，操作简单且稳定可靠。平台持续更新迭代，用户遇到问题时可以迅速获得客服支持。
 
-![WildCard服务](![image](https://github.com/user-attachments/assets/892f1f72-60c6-40c8-8eff-627e484fd7c7)
-)
+![image](https://github.com/user-attachments/assets/fb395388-0f03-42d5-8d4e-e1471af7ad85)
+
 
 ## WildCard平台虚拟卡常见问题解答
 
